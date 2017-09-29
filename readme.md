@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1.Michal Seles
 2.Richard Toth
-3.
+3.Kristina Karafova
 4.
 
